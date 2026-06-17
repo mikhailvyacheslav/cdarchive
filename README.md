@@ -10,14 +10,15 @@ $\text{\color{#CEA2FD}my discord ? @mateoduncanmiller (inactive) ; @vladimirm4ka
 -      thank you for reading.
 ![Project Logo](tumblr_cececc490999ad5f41fd890096026c82_80dfecb4_1280.png)
 
--
+?
 
 
 . . .
 
 
--
+?
 
 
 RIP. JACOB XXXX
 2008-20XX
+![Project Logo](CDarchive_-_Jacob%27s_funeral_drawing.webp)
