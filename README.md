@@ -21,4 +21,3 @@ $\text{\color{#CEA2FD}my discord ? @mateoduncanmiller (inactive) ; @vladimirm4ka
 
 RIP. JACOB XXXX
 2008-20XX
-![RIP.](CDarchive_-_Jacob%27s_funeral_drawing.webp)
