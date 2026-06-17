@@ -1,6 +1,7 @@
 # cdarchive.
 $\text{\color{#AA70CC}basic info.}$
 ![Project Logo](53bcef278e6a44e075bbcd11bd83b3ad.webp.jpg)
-jacob / mateo ; ask
-ask prns .
+$\text{\color{#DFB7EB}jacob / mateo ; any/ask names .}$
+$\text{\color{#F1F28A}ask prns sometimes .. currently going by he/detective/clue/pills/meds/shotgun/cd.}$
 ![Project Logo](tumblr_18942991d3f80a07faf32f3ce4642920_ff7403c9_2048.png)
+[strawpage](https://rochasinfocomms.straw.page/) . [ata](https://armlessdetective.atabook.org/) . [prns page](https://en.pronouns.page/@restinpeacejacob)
